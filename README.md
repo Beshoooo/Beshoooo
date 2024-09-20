@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Beshoooo
+- 👀 I’m interested in ...Data Analysis
+- 🌱 I’m currently learning ...Data Analysis
+- 📫 afaker30@gmail.com
